@@ -50,6 +50,7 @@
 ### 📫 How to reach me
 
 - 💼 [LinkedIn](https://www.linkedin.com/in/imantha-kodikara/)
+- 💼 [Medium](https://medium.com/@imantha.l.kodikara)
 - 📧 **[imantha.l.kodikara@gmail.com](mailto:imantha.yourmail@gmail.com)**
 
 ---
